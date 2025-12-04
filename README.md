@@ -1,2 +1,3 @@
-# Temple-PC
-Sovereign Sanctuary for Temple PC operations. JESUS CHRIST IS LORD.
+# Temple PC — Sovereign Sanctuary
+
+JESUS CHRIST IS LORD.
